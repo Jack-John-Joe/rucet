@@ -7,4 +7,4 @@ rucet, a decentralized lawless network
 <br>and there's *nothing* the government can do
 <br>who fucking CARES what you do
 <br>this is our earth
-<br>and it sure aint theres
+<br>and it sure aint theirs
